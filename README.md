@@ -1,7 +1,20 @@
 # primeira-s-rie-castelo
 tropa do Peroni 😱 😱 😱
-Em exposição realizada na manhã desta terça-feira, no lançamento da campanha "10 Medidas contra a Corrupção", Dallagnol disse que em um ano de Lava Jato já foram denunciadas mais de 150 pessoas, fechados mais de 28 acordos de delação premiada e revertidos voluntariamente aos cofres públicos mais de R$ 1,5 bilhão. Segundo ele, as propinas pagas, que teriam sido desviadas dos cofres da Petrobras, somam mais de R$ 6,2 bilhões. "Isso (R$ 6,2 bilhões) é apenas a ponta do iceberg do que é desviado no Brasil, algo em torno de R$ 200 bilhões", afirmou. "É um valor tão alto que não dá pra imaginar o que se faz com tanto dinheiro. Poderíamos triplicar os investimentos federais em saúde, educação, segurança."
+   A soja é a produção agrícola mais importante do país e exerce um papel fundamental para a nossa economia. Em um período de 22 anos, a soja cresceu muito no Brasil, passando de 11,3 milhões de hectares para 35,7 milhões de hectares, o que representa um avanço de 216%.
+Houve também mais produtividade na agricultura, com um crescimento de 43% de 1997 até os dias atuais (39,7 sacas para 56,6 sacas). Esses fatores contribuíram para que a soja alcançasse uma produção total de, aproximadamente, 120 milhões de toneladas, conforme a consultoria Safras e Mercados, competindo em pé de igualdade com os Estados Unidos pela maior produção desse tipo de oleaginosas no ranking mundial.Quer saber mais sobre o assunto? Veja um panorama sobre a produção de soja no Brasil a seguir, entenda os desafios do setor e descubra o que fazer para melhorar esse cultivo.
+   Os estados que mais se destacam na produção de soja são Mato Grosso, Paraná e Rio Grande do Sul. Mato Groso é o maior produtor no momento:
 
-A Lava-Jato começou apurando um esquema dentro da Petrobras e agora se amplia para outros órgãos públicos, como a Caixa, a Angra Nuclear e ministérios, como o Planejamento, disse o procurador. "Hoje, o objeto do caso Lava-Jato é a corrupção político-partidária, com desvio de dinheiro para fins eleitorais e para engordar o bolso dos envolvidos."
+sua produção é de 32,455 milhões de toneladas;
+a área plantada é de 9,700 milhões de hectares;
+a produtividade é de 3.346 kg/ha.
+ Em segundo lugar, vem o Paraná:
 
-Dallagnol disse ainda que os crimes de corrupção no país matam mais do que os de homicídios e a repercussão da Lava-Jato chegou a tal ponto que o tema virou corrente até em conversas de bar. "Vivemos um momento único e, se o perdermos, talvez não tenhamos outro. Por isso é preciso cobrar medidas de combate à corrupção, não só dos parlamentares", disse.
+sua produção é de 6,253 milhões de toneladas;
+a área plantada é de 5,438 milhões de hectares;
+a produtividade é de 2.989 kg/ha.
+ 
+Finalmente, temos o Rio Grande do Sul, em terceiro lugar, em que:
+
+sua produção é de 19,187 milhões de toneladas;
+a área plantada é de 5,778 milhões de hectares;
+a produtividade é de 3.321 kg/ha.
