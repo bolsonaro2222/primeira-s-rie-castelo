@@ -1,2 +1,7 @@
 # primeira-s-rie-castelo
 tropa do Peroni 😱 😱 😱
+Em exposição realizada na manhã desta terça-feira, no lançamento da campanha "10 Medidas contra a Corrupção", Dallagnol disse que em um ano de Lava Jato já foram denunciadas mais de 150 pessoas, fechados mais de 28 acordos de delação premiada e revertidos voluntariamente aos cofres públicos mais de R$ 1,5 bilhão. Segundo ele, as propinas pagas, que teriam sido desviadas dos cofres da Petrobras, somam mais de R$ 6,2 bilhões. "Isso (R$ 6,2 bilhões) é apenas a ponta do iceberg do que é desviado no Brasil, algo em torno de R$ 200 bilhões", afirmou. "É um valor tão alto que não dá pra imaginar o que se faz com tanto dinheiro. Poderíamos triplicar os investimentos federais em saúde, educação, segurança."
+
+A Lava-Jato começou apurando um esquema dentro da Petrobras e agora se amplia para outros órgãos públicos, como a Caixa, a Angra Nuclear e ministérios, como o Planejamento, disse o procurador. "Hoje, o objeto do caso Lava-Jato é a corrupção político-partidária, com desvio de dinheiro para fins eleitorais e para engordar o bolso dos envolvidos."
+
+Dallagnol disse ainda que os crimes de corrupção no país matam mais do que os de homicídios e a repercussão da Lava-Jato chegou a tal ponto que o tema virou corrente até em conversas de bar. "Vivemos um momento único e, se o perdermos, talvez não tenhamos outro. Por isso é preciso cobrar medidas de combate à corrupção, não só dos parlamentares", disse.
